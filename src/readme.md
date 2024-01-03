@@ -1,5 +1,3 @@
-DOS. HECHOS.  Que de la unión matrimonial entre sí de las partes fueron habidos la totalidad de los menores causantes; *Que de importante tiempo a esta parte, en general y aún desde el divorcio de el actor y la suscripta, con sentencia dictada por este mismo Organo con  fecha 29 de Diciembre de 2021, 
-en particular, el hoy requerido se abstiene se cumplir el deber alimentario a su cargo; *Que en ese contexto no solo se ha abstenido de asistir alimentariamente a sus hijos en cualquier modalidad, sino que también los ha desprotegido en materia de salud al no proveerles ningún tipo de cobertura a dicho efecto; *Que múltiples y vanas han sido las
-iniciativas orientadas a tratar de que el hoy requerido cese en su omisiva actitud; *Que he debido paliar las emergencias económicas por las que he pasado y paso a instancia de la colaboración de familiares, amigos y en ocasiones de la asistencia social estatal; *Que no puedo desarrollar actividad laboral, no por falta de voluntad, sino por la sencilla 
-circunstancia que debo ocuparme todo el tiempo de la manutención y crianza de mis hijos: *Que Emiliano Julián González, cursa estudios secundarios en la Escuela Nro. 1 de Punta Alta, Florencia Aylen González, cursa Cuarto Grado en la Escuela Nro. 14 y Camila Ainara 
-González, hace lo propio, cursando Tercer Año en la Escuela Media Nro. 1, también de Punta Alta
+En la actualidad se está discutiendo en el gobierno de la República Argentina 
+una profunda modificación de varias leyes promovidas por el presidente recientemente electo, Javier Milei, que comprende la derogación de varias normas y modificaciones que 
+tienen como objetivo desregularizar la economía nacional.
